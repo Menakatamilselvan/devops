@@ -1,3 +1,3 @@
 # devops
 devops
-blob:https://web.whatsapp.com/ec37bf2f-33ed-4ab8-9414-ee314f18f458
+![WhatsApp Image 2024-12-27 at 1 04 24 PM](https://github.com/user-attachments/assets/dab531da-f68b-4b5a-88b4-bba2a8557c6e)
